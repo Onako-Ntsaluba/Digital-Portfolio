@@ -21,7 +21,7 @@
 - Optimizing my PHP algorithms.
 - Career advice for becoming successful in the IT field.
 
-##💡 Ask Me About...
+## 💡 Ask Me About...
 - My experience with coding using HTML/CSS/VS Code.
 - How I built Online Voting System.
 
