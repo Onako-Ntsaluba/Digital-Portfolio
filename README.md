@@ -10,7 +10,7 @@
 
 ## 📚 I'm Currently Learning...
 - PHP | React 
-- ! Cybersecurity fundamentals
+- Cybersecurity fundamentals
 
 ## 🤝 I'm Looking to Collaborate On...
 - Hackathons focused on creating websites.
