@@ -2,7 +2,6 @@
 ## Hi, I'm Onako Ntsaluba 👋
 
 **Student Number:** 230741754  
-**Course:** Project Presentation 3  
 **Institution:** Cape Peninsula University of Technology
 
 ## 🔧 I'm Currently Working On...
