@@ -6,4 +6,4 @@ To cope with these challenges, I prepared thoroughly by learning about the organ
 
 After the exercise, I noticed a huge improvement in my capability to express myself clearly and professionally. I felt more equipped to respond to questions in a better way, relate my experience to job-related skills, and sell myself more confidently. I was given good feedback on my poise and structured responses. Through this mock interviewing exercise, I gained the insight that preparation, self-awareness, and reflection are the key determinants of interview success. I have realized that each interview—real or mock—is an opportunity to learn, build, and enhance my personal brand as a young professional.
 
-https://github.com/wil-it2025/cv-tutorial-Onako-Ntsaluba
+[https://github.com/wil-it2025/cv-tutorial-Onako-Ntsaluba](https://1drv.ms/v/c/3947686c86c94e68/ETcuIUVKMN5NiPSCLYketlMB_3Wi_TK6cnii-7p8cRC4Pg?e=x2aepf)
