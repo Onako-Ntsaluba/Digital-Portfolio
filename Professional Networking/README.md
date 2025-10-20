@@ -1,0 +1,9 @@
+<img width="1365" height="628" alt="Screenshot 2025-10-20 020913" src="https://github.com/user-attachments/assets/22b908ed-67fd-4227-a999-64029d0fbfee" />
+
+## Professional Networking Reflection (Using the STAR Approach)
+
+Throughout the Professional Networking module, I was encouraged to engage with peers, lecturers, and business professionals in an effort to create strong connections. To begin with, I found it difficult to initiate conversations and sustain professional engagements, especially in formal networking forums and internet portals such as LinkedIn. My main task was to learn effective networking techniques that would enable the creation of long-term professional connections and enhance career opportunities.
+
+To achieve this, I sought networking workshops, guest speakers, and online professional networks. I prepared an elevator pitch to introduce myself confidently, and I practiced asking inquiring questions in order to demonstrate interest and engagement. I also set out to follow up on leads professionally through LinkedIn messages and email. In team work, I offered to connect team members with external professionals, fostering teamwork and expanding our network as a whole. From this exercise in practice, I was able to learn to use networking strategies in real life and find out the importance of being professional and consistent.
+
+By this, I became more confident in initiating conversations and making professional contacts. I was able to establish effective contacts with professionals in the industry and received valuable feedback on career development and talent enhancement. The experience taught me that networking is not merely establishing contacts but establishing enduring relationships of trust, respect, and shared experiences. I now see the value of strategic networking as a career development and personal growth technique, and I plan to take these skills with me throughout my career.
